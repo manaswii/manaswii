@@ -16,5 +16,5 @@
 
 📫 How to reach me:
 
-LinkedIn: [Manaswi sharma](https://www.linkedin.com/in/abhishek-sharma-b49968213)<br>
+LinkedIn: [Manaswi sharma](https://www.linkedin.com/in/manaswi-sharma-60254874/)<br>
 Steam: [Steam](https://www.steamcommunity.com/id/soulscooper)
